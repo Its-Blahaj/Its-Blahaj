@@ -63,3 +63,4 @@ Feel free to explore my projects. I hope you find something interesting here, an
 ---
 
 <sub>🌷 Made with code, creativity, and a little silly energy ♡</sub>
+<sub>Anywaysss, back to coding, cyaaa 👋</sub>
