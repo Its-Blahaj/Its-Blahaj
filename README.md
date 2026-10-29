@@ -2,7 +2,7 @@
 
 I'm **Amy Yuki**, also known as **Nixie**! 🌷
 
-- 🎀 Pronouns: she/her
+- 🎀 Pronouns: she/her or they/them
 - 🇩🇪 From Germany
 - 🐾 Furry
 - 💻 Developer, creator, and professional silly girl
